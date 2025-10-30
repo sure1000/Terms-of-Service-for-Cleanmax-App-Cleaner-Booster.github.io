@@ -1,4 +1,4 @@
-# Terms-of-Service-for-Cleanmax-App-Cleaner-Booster.github.io
+# Terms-of-Service
 
 Welcome to Our Android applications (the "App" or "Apps", "Service") provided by Rajpoot Integrated Services ("I," "me," or "Our"). These Terms of Service ("Terms") govern your use of Our Apps. 
 
